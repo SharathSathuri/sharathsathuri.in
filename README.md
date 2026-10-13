@@ -1,1 +1,0 @@
-# sharathsathuri.in
